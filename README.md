@@ -16,8 +16,6 @@ streamlined processes to empower customers and enhance complaint resolution effi
 ![4](https://github.com/prasoonkhandelwal/customer_care_registry/assets/72154737/70d94e36-d33c-4e48-aef1-d66bd5148a9e)
 ![5](https://github.com/prasoonkhandelwal/customer_care_registry/assets/72154737/561e624d-8c5d-4f9d-a782-9b824731fc0b)
 ![6](https://github.com/prasoonkhandelwal/customer_care_registry/assets/72154737/b3df0185-acd2-4eff-b08d-58e6eeb56857)
-![7](https://github.com/prasoonkhandelwal/customer_care_registry/assets/72154737/11a37477-a820-4acd-969a-64ac232dc4e3)
-![8](https://github.com/prasoonkhandelwal/customer_care_registry/assets/72154737/fad90728-1dcb-4b34-b69c-8192925f20ab)
 ![9](https://github.com/prasoonkhandelwal/customer_care_registry/assets/72154737/5df0d668-f69d-421d-9a2d-b487dc164f44)
 
 
